@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Colley970Lyra
+- 👀 I’m interested in codeing, singing, dancing, and drawing
+- 🌱 I’m currently learning how to draw eyes and do my ariel
+- 📫 How to reach me Colll6143@wrdsb.ca 5195895021
